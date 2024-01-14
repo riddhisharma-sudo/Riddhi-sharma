@@ -1,4 +1,4 @@
-# 👋 Hello, World! I'm [Your Name]
+# 👋 Hello, World! I'm Riddhi 
 
 Welcome to my GitHub profile! 🚀
 
